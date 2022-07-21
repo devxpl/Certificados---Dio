@@ -1,2 +1,2 @@
 # Certificados---Dio
-Estudos basicos concluido e sendo melhorados a cada dia
+Basic studies completed and being improved every day
